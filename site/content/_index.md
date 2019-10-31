@@ -61,10 +61,6 @@ values:
     Additional Features: Solid Wood 7’6″ doors with Engraved Hinges; Carpeted
     Main Floor areas have Solid Oak Floors beneath; Lots of Storage and Closets;
     Shed w/ Electric Service; Historic “Milk House” (now a garden shed);
-    Fountain w/ Seating Area and Cascading Pools; 3 Stall Fully Insulated Garage
-    with New Garage Doors/Openers, Heat, Air Conditioning, 100 Amp Electric
-    Service, Hot and Cold Water and Cable; Concord Grape Vines; Sidewalk to be
-    installed Summer 2018 from Maynard to Collingdale; Mature Oak, Walnut,
-    Maple, Butternut and Pines; Lots of Wildlife; Apple Orchard behind home.
+    Fountain w/ Seating Area and Cascading Pools.
 ---
 
